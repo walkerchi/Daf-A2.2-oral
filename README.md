@@ -21,7 +21,7 @@
 
 4. Was war dine schönste Reisen?![audio](mündliche_prüfungen.assets/1.4-f.mp3?controls=mini)
 
-5. Meine beste Reise ist nach Mannheim, um mit meinen Freunden die Animagic zu besuchen. Das ist ein Festival für Animation. Und viele Animationsfans sind dort.![audio](mündliche_prüfungen.assets/1.4-a.mp3?controls=mini)
+   Meine beste Reise ist nach Mannheim, um mit meinen Freunden die Animagic zu besuchen. Das ist ein Festival für Animation. Und viele Animationsfans sind dort.![audio](mündliche_prüfungen.assets/1.4-a.mp3?controls=mini)
 
    
 
@@ -55,7 +55,7 @@
 
    
 
-4. Wie viel Zeit verbringt du in deiner Freizeit pro Tagg im Internet?![audio](mündliche_prüfungen.assets/2.4-f.mp3?controls=mini)
+4. Wie viel Zeit verbringt du in deiner Freizeit pro Tag im Internet?![audio](mündliche_prüfungen.assets/2.4-f.mp3?controls=mini)
 
    Ab 3 bis 5 Uhr, und Ich kann nicht ohne Internet leben.![audio](mündliche_prüfungen.assets/2.4-a.mp3?controls=mini)
 
